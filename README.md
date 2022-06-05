@@ -1,1 +1,1 @@
-# rsschool-cv
+https://zvezdoz.github.io/rsschool-cv/
